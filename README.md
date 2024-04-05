@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @riopranata112
+- 👋 Hi, I’m @rio
 - 👀 I’m interested in Game  
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on My Wife
